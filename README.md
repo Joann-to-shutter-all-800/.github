@@ -5,7 +5,7 @@
 ## Statement from Joann
 
 In a recent statement, Joann expressed its efforts to avoid this outcome:
-
+g
 > "JOANN leadership, our Board, advisors, and legal partners made every possible effort to pursue a more favorable outcome that would keep the company in business. We are committed to working constructively with the winning bidder to ensure an orderly wind-down of operations that minimizes the impact on all our stakeholders. We deeply appreciate our dedicated Team Members, our customers, and communities across the nation for their unwavering support for more than 80 years."
 > 
 [READ MORE](https://joanntoshutterall800.blogspot.com/2025/02/joann-to-shutter-all-800-fabric-stores.html?m=1)
