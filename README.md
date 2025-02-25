@@ -4,7 +4,7 @@
 
 ## Statement from Joann
 h
-In a recent statement, Joann expressed its efforts to avoid this outcome:
+In a recent statement, Joann expressed its efforts to avoid this outcome:g
 g
 > "JOANN leadership, our Board, advisors, and legal partners made every possible effort to pursue a more favorable outcome that would keep the company in business. We are committed to working constructively with the winning bidder to ensure an orderly wind-down of operations that minimizes the impact on all our stakeholders. We deeply appreciate our dedicated Team Members, our customers, and communities across the nation for their unwavering support for more than 80 years."
 > 
